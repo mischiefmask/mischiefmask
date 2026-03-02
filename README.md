@@ -3,7 +3,7 @@
 ![IMG_7795](https://github.com/user-attachments/assets/8c366933-9f98-4b8b-91df-4ae4d6ac6c22)
 
 
-remaking rrrrrr
+<p align="center">ℑ'𝔪 𝔫𝔬𝔱 𝔲𝔯 𝔥𝔦𝔤𝔥𝔫𝔢𝔰𝔰 - wip bro</p>
 
 
 
