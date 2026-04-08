@@ -5,7 +5,7 @@
 
 <img width="1000" height="929" alt="Untitled600_20260401003452" src="https://github.com/user-attachments/assets/8eca3432-eb83-4fc5-8cba-9922a08808b0" />
 
-<div align="center"><details> <summary>$${\color{706254} ⟡}$$</summary></summary> before you interact with me . . . . . . . . . . . . . 1. i mostly get shy around people i'm not familiar with, so i apologise if i don't respond that 
+<div align="center"><details> <summary>$${\color{706254} ⟡}$$</summary></summary> before you interact with me . . . . . . . . . . . . . . . 1. i mostly get shy around people i'm not familiar with, so i apologise if i don't respond that 
 fast.   
   ----------------------------------------
   2. i don't kin or yumeship with any character i find interesting. i just like the character either for their complex (or not complex) personality, or their looks and how they act. So please don't think i would be in love with a character that isn't real!
