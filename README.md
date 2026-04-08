@@ -8,11 +8,11 @@
 <div align="center"><details> <summary>$${\color{706254} ⟡}$$</summary></summary> before you interact with me . . . . . . . . . . . .  1. i mostly get shy around people i'm not familiar with, so i apologise if i don't respond that 
 fast.   
   ----------------------------------------
-  2. i don't kin or yumeship with any character i find interesting. i just like the character either for their complex(or not complex) personality, or their looks and how they act. So please don't think i would be in love with a character that isn't real!
+  2. i don't kin or yumeship with any character i find interesting. i just like the character either for their complex (or not complex) personality, or their looks and how they act. So please don't think i would be in love with a character that isn't real!
   ----------------------------------------
    3. when i get comfortable, i would probably talk about any random topic you can imagine. But please inform me about any topics that you dislike to see me talking about so i won't talk about it to you!
   ----------------------------------------
-  4. i don't like to talk about topics that include me lying about something, so if you see me talking about deceptional topics, just know that i'm just a bit off the mood. (i don't mind when you talk to me about deceptional topics as it's none of my business to be upset about a topic you decided to talk about!)
+  4. i don't like to talk about topics that include me lying about something, so if you see me talking about deceptional topics, just know that i'm just a bit off the mood. **(i don't mind when you talk to me about deceptional topics as it's none of my business to be upset about a topic you decided to talk about!)**
   ----------------------------------------
   
   that's all, sayonara . . <p></p></details> </div>
